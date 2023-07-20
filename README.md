@@ -1,1 +1,0 @@
-# ICONIX_ClinicX
